@@ -1,2 +1,2 @@
-Hi, I’m @JuanPalomeque
+Hi, I’m Juan Palomeque
 
